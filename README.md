@@ -3,5 +3,4 @@
 - Kunal Kushwaha says that this community is amazing.
 - Kunal made this change
 - I love MLH
-- More power to kunal. love the work which your are doing for the community.
-- Anirudh Sharma finds the Community Classroom initiative really great!
+- Kunla is a great guy and at the moment i am watching his git tutorial. He is a great guy
